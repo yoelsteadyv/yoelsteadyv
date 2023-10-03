@@ -3,7 +3,7 @@
 Perkenalkan nama saya **Yoel Steady Valentino**.\
 Saya seorang **Mahasiswa**
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://id.linkedin.com/in/yoel-steady-valentino-24650123a) ku ya.
+Jika tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://id.linkedin.com/in/yoel-steady-valentino-24650123a) ku ya.
  
 <p align="left">
 <a href="https://github.com/yoelsteadyv">
